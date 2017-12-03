@@ -1,0 +1,1 @@
+# https-coinpot.co-mine-litecoin-ref-881A630D986C
